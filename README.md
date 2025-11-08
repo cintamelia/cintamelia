@@ -14,4 +14,4 @@ Menjadi developer yang bermanfaat dan berkontribusi untuk masyarakat melalui tek
 ## 🌐 Hubungi Saya
 - 📧 Email: [cintamelia51@gmail.com]
 - 🚀 Media Sosial: [tiktok.com/@cintamelia123]
-- 💻 GitHub: [https://github.com/usernamekamu](cintamelia)
+- 💻 GitHub: [https://github.com/cintamelia](cintamelia)
